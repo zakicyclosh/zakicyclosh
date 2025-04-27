@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me >saifizakihichem@outlook.com
-- 😄 Pronouns: zaki
+- 😄 Pronouns:He/Him
 - ⚡ Fun fact: well i wanted to be her sooner but as they say late but not never >
 
 <!---
